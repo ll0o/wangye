@@ -5,6 +5,3 @@
 
 ### QQ客服
 <a href="https://qm.qq.com/q/cTzVZcG6NW">联系客服</a> 
-
-### 微信客服
-<a href="https://qm.qq.com/q/cTzVZcG6NW">联系客服</a>
